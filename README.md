@@ -16,5 +16,9 @@ Hudson Rio Brush Set: [FREE BRUSH SET: HUDSON RIO’S INDUSTRIAL DESIGN BRUSHES]
 
 Kevin Mellon Brush Set: Sadly these have been removed from the Autodesk sketchbook blog but I talked to mister Mellona and he said he will upload them to his personal blog. in the meantime, you can get them from here: [LINK](https://www.youtube.com/redirect?event=video_description&v=vuZN7nv9_mg&redir_token=-OYbraS6lXtEA-0kXqhG__nlg1p8MTU3MDg5NzMzOEAxNTcwODEwOTM4&q=https%3A%2F%2Fdrive.google.com%2Fopen%3Fid%3D1oN4xPhLXPyr73tze9OTHTmOfb_oeFuG9)
 
-## 2 Sketchbook Pro Tutorial Part 2
+## 2 Sketchbook Pro Tutorial Part 2: How to sketch a product
+Here is the 2nd of a 2 part tutorial going into Autodesk SketchbookPro.
 
+See video [Sketchbook Pro Tutorial Part 2 – How to sketch a product](https://youtu.be/w2IZGpbVh-c)
+
+I hope you enjoyed this autodesk sketchbook drawing tutorial. Find more digital art tips and tutorials here.
