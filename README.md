@@ -22,3 +22,7 @@ Here is the 2nd of a 2 part tutorial going into Autodesk SketchbookPro.
 See video [Sketchbook Pro Tutorial Part 2 – How to sketch a product](https://youtu.be/w2IZGpbVh-c)
 
 I hope you enjoyed this autodesk sketchbook drawing tutorial. Find more digital art tips and tutorials here.
+
+## 3 Basics to Sketchbook Pro 6 for Beginners Tutorial
+
+Based on "Basics to Sketchbook Pro 6 for Beginners Tutorial" at https://www.youtube.com/watch?v=ZDUWspKTvt0
